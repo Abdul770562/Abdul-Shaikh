@@ -30,8 +30,6 @@ I'm a Computer Science (AIML) student with a passion for Artificial Intelligence
 
 🔗 LinkedIn: https://www.linkedin.com/in/abdul-shaikh-477ba1269/
 
-🐦 Twitter: Your Twitter Profile
-
 📧 Email: shk.abdulqadir05@gmail.com
 
 Let's collaborate and build something amazing together! 🚀
